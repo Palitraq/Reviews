@@ -6,5 +6,9 @@
 ![hm6](https://github.com/user-attachments/assets/adb41825-b780-4cd6-bc14-6e5d5a8e0820)
 ![hm7](https://github.com/user-attachments/assets/2074d275-432e-45a5-9cab-461749445b24)
 ![hm8](https://github.com/user-attachments/assets/224bd007-bf06-439a-85b4-d6774cd1e95b)
-фыафыа
-jjj
+<img width="471" height="687" alt="изображение" src="https://github.com/user-attachments/assets/bcc39bb4-8390-4e70-b229-1cc5f8033b1a" />
+<img width="484" height="721" alt="изображение" src="https://github.com/user-attachments/assets/c8fccc05-1179-4e27-ae15-f19f95574d8b" />
+<img width="459" height="713" alt="изображение" src="https://github.com/user-attachments/assets/5f3b0221-6dde-4646-8140-d6617fbdd813" />
+<img width="483" height="744" alt="изображение" src="https://github.com/user-attachments/assets/4245d007-0254-4883-b91c-234b85e420f7" />
+<img width="466" height="713" alt="изображение" src="https://github.com/user-attachments/assets/f74c4cd1-8c24-40e3-9b3e-ef4d6afcb432" />
+<img width="488" height="717" alt="изображение" src="https://github.com/user-attachments/assets/57309aa4-4cba-4f63-9eef-288f5917041d" />
